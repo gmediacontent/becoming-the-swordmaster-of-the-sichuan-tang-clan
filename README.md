@@ -1,1 +1,2 @@
-# becoming-the-swordmaster-of-the-sichuan-tang-clan
+# Becoming the Swordmaster of the Sichuan Tang Clan
+Le clan Dang de Sacheon, autrefois réputé pour ses poisons et ses armes cachées, est aujourd'hui sur le point de disparaître. Jusqu'à ce que Yeonmyeung Dang, un garçon paria du clan, se réveille en se remémorant les souvenirs de sa vie passée, celle du « dieu des épées » qui a consacré sa vie à la maîtrise de l'épée... Le garçon sera-t-il capable de protéger sa famille...
